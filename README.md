@@ -30,6 +30,6 @@
 📌 立即收藏本页，每天来这里看最新最全的日本AV免费在线观看资源，享受不花钱、不等待、不广告的看片快感！
 
 
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] ( https://github.com/tnnn2611/1888888888 ）</span>
 
 
